@@ -1,1 +1,1 @@
-coding is cool
+be up to date
